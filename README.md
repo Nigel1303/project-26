@@ -1,0 +1,1 @@
+The history of pizza begins in antiquity, when various ancient cultures produced basic flatbreads with several toppings. ... The word pizza was first documented in 997 AD in Gaeta and successively in different parts of Central and Southern Italy. Pizza was mainly eaten in Italy and by emigrants from there.
